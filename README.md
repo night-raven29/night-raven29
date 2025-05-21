@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sontakkegaurav29@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1T2goF2fZB0fLkD3CTKCT1P91RfUJQdrF/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1f9BBn5vF7zBANLVcT392gBJTL6S4C7j5/view?usp=sharing)
 
 - ⚡ Fun fact **I like tea**
 
